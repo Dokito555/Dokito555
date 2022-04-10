@@ -6,4 +6,4 @@
 <br/>
 <h4>Visitor Count :eyes:</h4>
 
-https://count.getloli.com/get/@:Dokito555<br />
+[![42](https://count.getloli.com/get/@Dokito555?theme=rule34)](#)<br />
